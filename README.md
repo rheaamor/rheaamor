@@ -1,7 +1,7 @@
 Welcome to my webpage! 
 
 
-Rhea Lumactud,PhD
+Rhea Lumactud, PhD
 
 r.lumactud@mail.utoronto.ca
 
