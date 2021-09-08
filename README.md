@@ -1,5 +1,3 @@
-Welcome to my webpage! 
-
 
 Rhea Lumactud, PhD
 
